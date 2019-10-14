@@ -1,0 +1,2 @@
+# Bakir
+Bakir kralj
